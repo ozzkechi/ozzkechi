@@ -1,1 +1,6 @@
-https://media1.tenor.com/m/gEcKkAbN3X8AAAAC/the-amazing-digital-circus-digital-circus.gif
+## HAI EVERYPONY !!!!
+![the-amazing-digital-circus-digital-circus](https://github.com/user-attachments/assets/d2b124ef-6aec-41b7-84d8-b56ffacb8466)
+
+HALLO I'm Crane (or Toby!), I'm 18 and use she/he/it pronouns & I'm also a system. Super into the amazing digital circus as of right now, huge fan of abstragedy !! Please feel free to read my strawpage if you wanna know more ^__^
+
+I love to chill and chat so please dont be afraid to come sit/talk to me!! I'm nice I swear!! Warning, I do struggle talking with new people so I may come off awkward BAHHH !!!! I usually like to do other things while on ponytown but I try to check it often, If I'm ever afk please send me a whisper and I'll reply back as soon as I see it. 

@@ -5,4 +5,4 @@ HALLO I'm Crane (or Toby!), I'm 18 and use she/he/it pronouns & I'm also a syste
 
 I love to chill and chat so please dont be afraid to come sit/talk to me!! I'm nice I swear!! Warning, I do struggle talking with new people so I may come off awkward BAHHH !!!! I usually like to do other things while on ponytown but I try to check it often, If I'm ever afk please send me a whisper and I'll reply back as soon as I see it. 
 
-dni proship/darkship, idk thats all i really ask im not too picky just dont really want to interact with any freaks or weirdos
+DNI proship/darkship, endo "systems", idk thats all i really ask im not too picky just dont really want to interact with any freaks or weirdos

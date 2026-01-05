@@ -1,4 +1,4 @@
-## HAI EVERYPONY !!!!
+## HAI EVERYPONY !!!! ![https://i.postimg.cc/MGtvn98L/b8462fb1.gif]
 ![the-amazing-digital-circus-digital-circus](https://github.com/user-attachments/assets/d2b124ef-6aec-41b7-84d8-b56ffacb8466)
 
 HALLO I'm Crane (or Toby!), I'm 18 and use she/he/it pronouns & I'm also a system. Super into the amazing digital circus as of right now, huge fan of abstragedy !! Please feel free to read my strawpage if you wanna know more ^__^

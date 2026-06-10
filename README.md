@@ -5,4 +5,4 @@ hallo i am crane ! im 19 years old. im a pansexual agender girlthing and i use a
 
 ![devi](https://media1.tenor.com/m/CToC61jxe9UAAAAC/devi-mccallion-devi.gif)
 
-im bad at talking to new people but i try my best.. please feel free to sit with me, i usually only really get online if im hanging out with my friends so youll probably see me sitting with them
+im bad at talking to new people but i try my best.. please feel free to sit with me, i usually only really get online if im hanging out with my friends so youll probably see me sitting with them as well

@@ -3,4 +3,4 @@
 
 hallo i am crane ! im 19 years old and have AuDHD and DID. i like cute girls, loud music, horror, and drawing
 
-![devi](https://pin.it/7Gu69EgCx)
+![devi](https://media1.tenor.com/m/CToC61jxe9UAAAAC/devi-mccallion-devi.gif)

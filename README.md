@@ -2,3 +2,5 @@
 ![rena dancing hehe](https://media1.tenor.com/m/86S3rsV5n7kAAAAd/rena-ryuugu-higurashi-no-naku-koro-ni.gifb56ffacb8466)
 
 hallo i am crane ! im 19 years old and have AuDHD and DID. i like cute girls, loud music, horror, and drawing
+
+![devi](https://pin.it/7Gu69EgCx)
